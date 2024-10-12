@@ -1,6 +1,6 @@
 ***FIXED RENDER DEPLOY***
 
-### 1.`First STAR 🌟 This Repo ` And Then [`FORK`](https://github.com/Toxic1239/RIASGREMORY/fork) It
+### 1.`First STAR 🌟 This Repo ` And Then [`FORK`](https://github.com/boru-to/KATAKURI_MD/fork) It
 
 </p> CLICKING FORK IS A MUST </p>
 
